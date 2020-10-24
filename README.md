@@ -6,4 +6,4 @@
 - [#] GitHub : @0xZoRo
 - [#] instagram : @9du
 
-![x](https://a.top4top.io/p_1757k6fgd1.png)
+![x](https://picresize.com/popup.html?images/rsz_3simblesqli.png)
